@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Scrum Master with **outstanding** Team player attributes, coming from a military and Scrum environment. 
